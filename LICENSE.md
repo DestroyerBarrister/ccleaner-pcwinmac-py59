@@ -1,4 +1,4 @@
-# 
+# Personnalisé CCleaner plugins pour Mac OS | Premium CCleaner plugins pour PC Windows. Avec nettoyage de l'historique et sauvegarde de données — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
